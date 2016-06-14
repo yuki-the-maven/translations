@@ -1,15 +1,14 @@
 # Jap
 
-はじまりのよるに
-きりてひたはな
-なめえもなくさいで
-わないでた
-そのちのひたぎでつきまはかくそまる
+in the night of the beginning
+the flower that was cutting
+the ? not without a name appeared
+in the pain of that blood the moon dyes red
 
-かなしみもうそうそつなに
-つきだでて
-あをくもれるさがめろうままに
-みのせつをてらした
+sorrow and lies connect
+the moon appears
+the blue ??? as always
+??? was shining
 
 。。。。
 
