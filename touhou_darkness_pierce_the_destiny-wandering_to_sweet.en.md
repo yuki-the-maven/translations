@@ -1,4 +1,4 @@
-# Jap
+# En
 
 in the night of the beginning
 the flower that was cutting
@@ -12,12 +12,12 @@ the blue ??? as always
 
 。。。。
 
-ひとのかたちをしたのじゃきききざんだ
-かけらをあつめてほのうになげくむ
-てつじょうかこまれたむこうからきこえでいた
-わらいごえがきえた
+human form ????
+(I'd better?) gather the fragments ????
+from beyond the covered in barbs I was hearing
+the laughter disappeared
 
-はいいろのかがみにあいをうつして
+transfer your love to a grey mirror
 かみわたましいもくらぶのだろう
 きらいのとならめたなぐさめなんて
 ひだなつめたいあめがきずはあないながした
